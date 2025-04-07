@@ -5,6 +5,7 @@ title: Journal from 10 Years in the Future
 i wrote this back in 2022 when i was trying to figure out i'd do with my life if i could dream big. 
 
 ~
+
 I woke up in my treehouse as usual, light winking through the canopy (world’s best four-poster!). Winter’s coming and I’ll have to move indoors eventually, but I have a few more weeks. Even more if I get back to my cold exposure practice! I felt bright and alert—sleep’s good, thanks to the trees and outdoor temperature cycle. Of course,  I dialed in sleep ages ago, so it’s hardly worth mentioning, but I’m still grateful. 
 
 One of my lovers is here too; the other’s off already. He's building another Ashapur and doesn’t want to waste energy travelling back and forth. We don’t use much energy these days; we live simply among the trees and suntowers. 
