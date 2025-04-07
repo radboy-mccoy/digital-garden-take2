@@ -9,6 +9,8 @@ permalink: /
 
 Here lives my assorted creative output. I hope you'll enjoy looking around and keep coming back as the site grows. 
 
+<img src="{{ site.baseurl }}/assets/image.jpg"/>
+
 <strong>Recently Updated</strong>
 
 <ul>
