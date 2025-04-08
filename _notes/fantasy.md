@@ -4,14 +4,14 @@ title: A Fantasy
 
 Picture this. A tall guy, sturdy, real pretty. He’s got muscle but he’s soft too, like he works out but still has time to read. He’s my best friend and he loves to share what he’s learning. 
 
-Today he’s talking about his current favourite poet, Rainer Maria Rilke. He settles beside me on the couch, slings an arm around my shoulders, and starts to read aloud from a library book. “This one’s called ‘Go to the Limits of Your Longing’.”
+Today he’s talking about his current favourite poet, Rainer Maria Rilke. He settles beside me on the couch, slings an arm around my shoulders, and starts to read aloud from a library book. “This one’s called ‘Go to the Limits of Your Longing’. It goes:”
 
 “*God speaks to each of us as he makes us,*  
 *then walks with us silently out of the night.*
 
 *These are the words we dimly hear:*”
 
-He wets his lips and glances at me, eyes bright. His fingers play under my collar.
+He wets his lips and glances at me, eyes bright. His fingers play under my collar as he continues. 
 
 “*You, sent out beyond your recall,*  
 *go to the limits of your longing.*  
@@ -31,7 +31,7 @@ I love that thought. I picture him shirtless, shoulders slick with effort, cute 
 
 He hums the melody of “Take this Longing” and shifts ever so slightly. If I move against him he’ll stop, so I stay still, keep my gaze on his, and imagine his baritone rumbling below my navel. The honeyed sound sticks my thighs together.
 
-“Tell me what you want.”
+“Tell me what you want," he says. 
 
 I want him to move. I want him to drape his arms over my shoulders and surround me. I want his breath in my ear and our chests pressed together so I can feel his voice and heartbeat as he talks me off. I want to flip us over and stick my fingers in his mouth.
 
@@ -47,7 +47,7 @@ He doesn’t answer. His eyes touch my lats, my high breasts, each collarbone in
 “*Let everything happen to you: beauty and terror.*  
 *Just keep going. No feeling is final.*”
 
-Just keep going. If only he’d get a move on. If only he’d actually kiss me instead of sitting there looking like he knows exactly what I’m thinking, like he knows that every moment he spends looking at me sends more desire bouncing around inside me, desire that has nowhere to go, nothing to do but echo and amplify. I’m starting to buzz.
+*Just keep going.* If only he’d get a move on. If only he’d actually kiss me instead of sitting there looking like he knows exactly what I’m thinking, like he knows that every moment he spends looking at me sends more desire bouncing around inside me, desire that has nowhere to go, nothing to do but echo and amplify. I’m starting to buzz.
 
 “You can take that off now,” he tells me. 
 
