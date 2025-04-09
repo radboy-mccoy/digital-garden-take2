@@ -1,5 +1,5 @@
 ---
-title: A Fantasy
+title: A Fantasy (erotica)
 ---
 
 Picture this. A tall guy, sturdy, real pretty. He’s got muscle but he’s soft too, like he works out but still has time to read. He’s my best friend and he loves to share what he’s learning. 
