@@ -7,7 +7,7 @@ permalink: /
 
 # Welcome! 🌱
 
-Here lives my assorted creative output. I hope you'll enjoy looking around and keep coming back as the site grows. 
+Here lives my assorted creative output. It's a digital garden, something between a blog and a notebook that grows as my ideas and the connections between them develop. I hope you'll enjoy looking around and keep coming back as the site grows. 
 
 <img src="{{ site.baseurl }}/assets/welcome.jpeg"/>
 
